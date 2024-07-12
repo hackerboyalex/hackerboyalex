@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **I am Cyber Security Student**
 
-- 📫 How to reach me **hackerboyalex.ig@gmail.com**
+- 📫 How to reach me **abhinavsingh@scanrly.com**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
